@@ -1,11 +1,8 @@
 
-## topic: is it more important to keep your old friends than it is
-         to make new friends?
+## topic: is it more important to keep your old friends than it is to make new friends?
 
 
-#### I agree that It is more important to keep your old friends than it is
-to make new friends.There are following
-  3 reasons surport my oppinion.
+#### I agree that It is more important to keep your old friends than it is to make new friends.There are following3 reasons surport my oppinion.
 
 *  First, how can the man become your old friends is the key point . The classmates in primary or college ,
  we all have  a  good memory with them . We cared about each other,
@@ -35,5 +32,4 @@ keeping relationship is a lifetime subject and needs more time  .
 
 
 
-####  Making new friends begins the relationship ,
- but keep the relationship is  more important and will good for us in a long time.
+####  Making new friends begins the relationship ,but keep the relationship is  more important and will good for us in a long time.
